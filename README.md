@@ -1,0 +1,2 @@
+# Kadir
+Kadımak istiyorum 
